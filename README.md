@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Lox-Kak0yto
+- Novikov Konstantin sudying at 西安交通大学
+- 学号2239990393 计算留2301
